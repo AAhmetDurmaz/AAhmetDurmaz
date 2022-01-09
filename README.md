@@ -1,1 +1,1 @@
-```Abdullah Ahmet Durmaz | BBT's Coder```
+```Abdullah Ahmet Durmaz | Active Coder on BBT, KSBU-TEC```
